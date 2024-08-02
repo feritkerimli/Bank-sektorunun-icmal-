@@ -1,1 +1,1 @@
-# Bank-sektorunun-icmal-
+# Bank sektorunun icmalı
